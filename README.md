@@ -19,4 +19,7 @@ Classes left to take
   Entreprenuership: From Startup to Growth
   Global Business Horizons
   Global Strategy
-  
+Fall 2018
+  Financial Accounting
+  Global Strategy
+  Process Management
